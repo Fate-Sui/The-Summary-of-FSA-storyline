@@ -18,7 +18,7 @@ class="logo">
 
 <p>The story then flashes back to three weeks prior in a remote village, where Marshall's mother is heavily pregnant and about to give birth. Marsha is thrilled at the thought of becoming an older sister, especially after hearing that her sibling is a boy. After a long wait, the sound of a newborn baby crying fills the air—Marsha's little brother is born and given the name Carlos Roman.
 
-Suddenly, Marsha senses something strange happening to her body and soul. She screams, unleashing a massive burst of energy that illuminates the entire village. When the light fades, Marsha wakes up—only to be horrified by what she sees. HER FATHER AND MOTHER HAVE BEEN REDUCED TO SKELETONS. Meanwhile, Carlos is still crying in his mother’s arms, which are now nothing more than bare bone. Marshall runs outside to call for help, but every patient, visitor, doctor, and nurse in the clinic has also been turned into skeletons.</p>
+Suddenly, Marsha senses something strange happening to her body and soul. She screams, unleashing a massive burst of energy that illuminates the entire village. When the light fades, Marsha wakes up—only to be horrified by what she sees. HER FATHER AND MOTHER HAVE BEEN REDUCED TO SKELETONS. Meanwhile, Carlos is still crying in his mother’s arms, which are now nothing more than bare bone. Marsha runs outside to call for help, but every patient, visitor, doctor, and nurse in the clinic has also been turned into skeletons.</p>
 
 <p>Catching her reflection in a mirror, Marsha gasps: she now has horns and terrifying, demon-like eyes. She struggles to process what is happening, desperately hoping it's all just a nightmare. But Carlos's worsening cries are a harsh reminder that this nightmare is real.
 
@@ -30,7 +30,7 @@ In the end, Marsha gathers Carlos and leaves immediately. She soon realizes that
 
 When Marsha opens her eyes again, she finds herself in a warm room softly lit by a lantern, lying on a comfortable, plush mattress. At first, she thinks she is dreaming. Then, a woman dressed as a nun enters, carrying a bowl of hot soup. The nun introduces herself as Syrena. Nearby, Carlos is fast asleep in a crib. Marsha is stunned—she has never seen Carlos sleep so peacefully.
 
-Even more surprising is that Syrena seems completely unfazed by Marsha's demonic appearance. Before Marshall can ask about it, she notices that her horns are gone and her eyes have returned to normal. Syrena gently reassures her, saying she wasn't afraid of Marsha even when she brought her in with the horns and eyes—meaning the demonic form vanished on its own when Marsha was brought into Syrena's home.
+Even more surprising is that Syrena seems completely unfazed by Marsha's demonic appearance. Before Marsha can ask about it, she notices that her horns are gone and her eyes have returned to normal. Syrena gently reassures her, saying she wasn't afraid of Marsha even when she brought her in with the horns and eyes—meaning the demonic form vanished on its own when Marsha was brought into Syrena's home.
 
 From that day on, Syrena takes Marsha and Carlos under her wing, caring for them without an ounce of hatred or prejudice. For the first time in a long while, Marsha gets to experience a sense of home again, confident that Carlos will grow up safe and loved.</p>
 
