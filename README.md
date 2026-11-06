@@ -53,7 +53,7 @@ As the situation rapidly escalates out of control, one of the officers draws his
 <p><i>"Happy birthday, Marsha... For the last time, I'm sorry..."</i></p>
 <p>Syrena closes her eyes and takes her last breath right there in Marsha’s arms.
 
-Marsha stares past the body—not at the officers, but toward the birthday decorations Syrena had secretly set up as a surprise while Marsha was at the market. Balloons and a banner reading "Happy 13th Birthday, Marsha" hang quietly in the room. In an instant, the peaceful, quiet world Marshall had known is shattered once again.
+Marsha stares past the body—not at the officers, but toward the birthday decorations Syrena had secretly set up as a surprise while Marsha was at the market. Balloons and a banner reading "Happy 13th Birthday, Marsha" hang quietly in the room. In an instant, the peaceful, quiet world Marsha had known is shattered once again.
 
 Something massive and dark surges and boils inside her. She grunts, gritting her teeth as the surrounding air grows heavy and suffocating. Setting Syrena gently onto the floor, Marsha rises. Her eyes darken, her pupils shifting to a fierce magenta, glaring at the sheriffs like an apex predator about to tear its prey apart.</p>
 
@@ -66,7 +66,7 @@ Something massive and dark surges and boils inside her. She grunts, gritting her
 Standing among them is Marsha. Her cold, demonic eyes turn to look at Carlos. A shudder runs down Carlos's spine, sheer terror gripping him as he stares at his sister.</p>
 
 <p>Suddenly, Marsha blurs forward, wrapping Carlos in a desperate, tight embrace, smearing blood from her face and hands onto him. Marsha sobs uncontrollably before breaking into hysterical tears. Carlos's terror turns to overwhelming confusion as his sister cries violently against him.</p>
-<p>Marshall squeezes him tighter and whispers:</p>
+<p>Marsha squeezes him tighter and whispers:</p>
 <p><i>"Carlos... There is no truth left for us in this life... From now on... we go through everything together. JUST THE TWO OF US. And I won't lose you. No... I refuse to lose you."</i></p>
 
 <h1>Part 03: New world</h1>
